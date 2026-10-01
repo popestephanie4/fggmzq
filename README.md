@@ -1,0 +1,2 @@
+# fggmzq
+Daily digest notes
